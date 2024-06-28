@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Agapito19
+- 👀 I’m interested in agapitos xd
+- 🌱 I’m currently learning a hacer codiguitos
+- 💞️ I’m looking to collaborate on mi piojo
+- 😄 Pronouns: she
